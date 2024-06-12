@@ -3,7 +3,11 @@
 
 
 
-https://github.com/yemrebeskan/Infrared-Harmony-Ball-On-The-Edge/assets/73002131/425ce5f7-d3e8-4289-8ece-129da024407e
+https://github.com/yemrebeskan/Infrared-Harmony-Ball-On-The-Edge/assets/73002131/f898ab01-8947-48b1-a236-849928c67574
+
+
+
+
 ![image](https://github.com/yemrebeskan/Infrared-Harmony-Ball-On-The-Edge/assets/73002131/8ee253ee-1f70-4a38-93e3-8fec4f2c24fb)
 
 
